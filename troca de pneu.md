@@ -7,3 +7,5 @@ retirar a roda
 colocar o estepe 
 apertar os parafusos 
 baixar o carro 
+rezar para não furar o pneu reserva 
+	
