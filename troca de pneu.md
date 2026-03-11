@@ -1,6 +1,5 @@
 troca de pneu 
 sair do carro 
-pegar a chave e jogar no motoqueiro passando e dando pitaco 
 diminuir o torque dos parafusos 
 erguer o carro 
 tirar os parafusos 
